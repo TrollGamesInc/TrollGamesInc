@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @TrollGamesInc
 - 👀 I’m interested in coding & gaming
-- 📫 How to reach me: [trollgames@gmx.com] (mailto:trollgames@gmx.com)
+- 📫 How to reach me: [trollgames@gmx.com]
